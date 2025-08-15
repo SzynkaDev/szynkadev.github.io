@@ -1,0 +1,1 @@
+# szynkadev.github.io
